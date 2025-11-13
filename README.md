@@ -14,3 +14,9 @@
 
 <img width="1362" height="431" alt="image" src="https://github.com/user-attachments/assets/2f8aceb1-d932-4add-813a-f511a7efea68" />
 
+
+COMENTÁRIOS
+<img width="965" height="429" alt="Captura de tela 2025-11-12 220128" src="https://github.com/user-attachments/assets/0e614b7d-29b5-4a00-9c7b-69f70eddca3c" />
+
+
+<img width="794" height="406" alt="Captura de tela 2025-11-12 220143" src="https://github.com/user-attachments/assets/8f82b950-f632-4ff8-91e8-3fb7eeaf7aa7" />
