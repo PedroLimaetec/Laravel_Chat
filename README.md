@@ -20,3 +20,20 @@ COMENTÁRIOS
 
 
 <img width="794" height="406" alt="Captura de tela 2025-11-12 220143" src="https://github.com/user-attachments/assets/8f82b950-f632-4ff8-91e8-3fb7eeaf7aa7" />
+
+
+CHAT: 
+<img width="1416" height="572" alt="image" src="https://github.com/user-attachments/assets/850a4901-4a19-46cf-a946-5e5a4dc0e440" />
+
+
+<img width="1226" height="601" alt="image" src="https://github.com/user-attachments/assets/ca43e715-2975-40d0-b6ab-51ac512667a8" />
+
+
+BANCO DE DADOS
+
+<img width="1590" height="747" alt="image" src="https://github.com/user-attachments/assets/3a8933ec-78df-4616-92f7-4e40d45f4280" />
+
+<img width="1732" height="257" alt="Captura de tela 2025-11-12 231609" src="https://github.com/user-attachments/assets/c76422eb-cce8-443c-beb6-a5f1ace4d086" />
+
+
+
